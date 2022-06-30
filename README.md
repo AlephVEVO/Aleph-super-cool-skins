@@ -2,7 +2,7 @@
 
 If a link is down dm me on twitter [@Aleph_003](https://twitter.com/Aleph_003), Discord (Aleph#9275), or [osu!](https://osu.ppy.sh/users/6735738)
 
-# [Aleph NM (Stolen from nanoya)](https://puu.sh/J8NpK/6fec1641d5.osk)
+# [Aleph stole from nanoya](https://puu.sh/J8NpK/6fec1641d5.osk)
 ![](https://i.imgur.com/BIcBC2Z.png)
 
 # [Rafis ADD](https://puu.sh/J7hYh/3a454b3961.osk)
