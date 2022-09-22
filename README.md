@@ -2,6 +2,12 @@
 
 If a link is down dm me on twitter [@Aleph_003](https://twitter.com/Aleph_003), Discord (Aleph#9275), or [osu!](https://osu.ppy.sh/users/6735738)
 
+# [mario bro DT](https://puu.sh/Jmzwy/d842401ffa.osk)
+![](https://i.imgur.com/RjpA5jl.png)
+
+# [ypan edit](https://puu.sh/JmzwN/1d093ce2bf.osk)
+![](https://i.imgur.com/Xl1pl1c.png)
+
 # [Valencia C.F Empty (Instafade)](https://puu.sh/JgMJ5/5ac1d08a99.osk)
 ![](https://i.imgur.com/epWQe3j.png)
 
